@@ -2,7 +2,7 @@
 
 Marketing manager working on paid search, landing pages and conversion.
 
-## Currently: fractional marketing manager at [LawYeah](https://www.lawyeah.de)
+## Currently: Fractional GTM & Digital Marketing Manager at [LawYeah](https://www.lawyeah.de)
 
 LawYeah matches people with specialist lawyers in Germany. I run paid search and build the campaign landing pages, including the code changes, which I ship to the live site myself.
 
