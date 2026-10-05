@@ -17,4 +17,4 @@ My work there lives in a private code project under my work account, [@ELawYeah]
 
 ## Contact
 
-[LinkedIn](https://www.linkedin.com/in/eleonorecodjosauvage/)) · eleonorecodjo@gmail.com
+[LinkedIn](https://www.linkedin.com/in/eleonorecodjosauvage/) · eleonorecodjo@gmail.com
